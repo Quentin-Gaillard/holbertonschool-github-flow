@@ -1,1 +1,1 @@
-Effective teamwork depends on continuous feedback and share understanding.
+Collaboration requires adaptability, trust, and continuous alignement among team members.
