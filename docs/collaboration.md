@@ -1,1 +1,1 @@
-Collaboration requires clear communication and well-defined responsabilities.
+Collaboration requires adaptability, trust, and continuous alignement among team members.
